@@ -1,4 +1,4 @@
-### Hi there 👋
+### HELLO VIEWERS 👋
 
 <!--
 **OMSAI712/OMSAI712** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
